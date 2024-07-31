@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @klittleboykz
+- 👋 Hi, I’m Kristofer Westefeld Durval
 - 👀 I’m interested in games
 - 🌱 I’m currently learning art
 - 💞️ I’m looking to collaborate on social projects
